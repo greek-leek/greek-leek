@@ -28,5 +28,5 @@ Argument 2: "Being a right respecting school does not mean applying the conventi
 
 I welcome and recognise the School's appetite to champion children rights, especially when in so many places around the world children rights are not respected. I would welcome at least vocal support for children in Palestine, Sudan or Ukraine. However, accepting the existence of fees and at the same time claiming support for children rights is simply incompatible.
 
-
+The Greek Leek
 

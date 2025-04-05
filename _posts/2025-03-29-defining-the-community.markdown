@@ -23,3 +23,5 @@ Success for the School means certain basic provisions: providing teachers and pr
 # Representation
 
 Let us now consider that, in the above phrase, the term "Hellenism" is meant alongside its qualifier, i.e. "Hellenism in Wales". Perhaps, "Hellenism in Wales" is a much narrower context that can be represented during a short event. Who does this representation cover? Does it cover the Greeks in the Cardiff docks over the past century? Does it cover the families that have left the School? Does it cover those families that have decided not to join the School? Does it cover the Greek immigrants who do not have children? Does it cover the Greeks in West and North Wales for whom travel to Cardiff is impossible? Does it cover people like me who consider the idea of the parade inappropriate and irresponsible image of my country abroad? I could carry on, but the point I am making is that the forthcoming fiesta is far from a representation of Hellenism in Wales or anywhere else.
+
+The Greek Leek

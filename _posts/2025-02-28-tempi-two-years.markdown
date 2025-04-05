@@ -23,3 +23,5 @@ I am told that similar commemoration events happened in many cities around the w
 # Update
 
 Since publishing this blog post I was informed that a vigil was held at Queen St. in Cardiff on the 28th of February to commemorate the disaster. This, at least, goes to some extent to salvage the lack of activitiy on this issue but it also highlights the fragmentation of the Greek community in Cardiff.
+
+The Greek Leek
