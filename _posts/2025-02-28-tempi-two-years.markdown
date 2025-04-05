@@ -16,6 +16,10 @@ I am told that similar commemoration events happened in many cities around the w
 
 #  Cardiff
 
-Being away from Cardiff on the 28th, I do not know if a similar vigil is being held in our city. Neither the Greek Church, nor the Greek School circulated any communication about organising a commemoration event during the days leading up to the 28th. The rest of the dispersed community arguably has no common reference point to be able to organise such an event, i.e. there is no forum or circulation list to allow such activity to materialise.
+~~Being away from Cardiff on the 28th, I do not know if a similar vigil is being held in our city. Neither the Greek Church, nor the Greek School circulated any communication about organising a commemoration event during the days leading up to the 28th. The rest of the dispersed community arguably has no common reference point to be able to organise such an event, i.e. there is no forum or circulation list to allow such activity to materialise.~~
 
-This is rather depressing. The date has passed. The opportunity to show support for the victims' families is now gone. The Greek community in Cardiff is once again absent from such important activities.
+~~This is rather depressing. The date has passed. The opportunity to show support for the victims' families is now gone. The Greek community in Cardiff is once again absent from such important activities.~~
+
+# Update
+
+Since publishing this blog post I was informed that a vigil was held at Queen St. in Cardiff on the 28th of February to commemorate the disaster. This, at least, goes to some extent to salvage the lack of activitiy on this issue but it also highlights the fragmentation of the Greek community in Cardiff.
