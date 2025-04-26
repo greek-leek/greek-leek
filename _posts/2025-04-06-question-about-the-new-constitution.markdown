@@ -4,7 +4,7 @@ title:  "Questions about the new constitution"
 date:   2025-04-06 21:28:30 +0100
 ---
 
-This post is necessary as the only means available to me for initiating discussion among parents on the new constitution for the School in its new formation as a charity. A separate post will be produced for explaining why the process that the School committee has proposed in inadequate for meaningful discussion, but over here I am only focussing on the specifics of the proposed constitution.
+This post is necessary as the only means available to me for initiating discussion among parents on the new constitution for the School in its new formation as a charity. A [separate post]({% post_url 2025-04-26-process-of-discussing-the-constitution %}) will be produced for explaining why the process that the School committee has proposed in inadequate for meaningful discussion, but over here I am only focussing on the specifics of the proposed constitution.
 
 I am doing this with the best intentions, and with the only purpose to create a constitution that will be appropriate for our School and will ensure long term stability and security.
 
