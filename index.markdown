@@ -7,4 +7,4 @@ layout: home
 
 ![Blog logo](/assets/greek-leek-round-logo.png)
 
-An honest blog on Greek language education in the UK and the Greek community in Cardiff.
+An honest blog on Greek language education in Britain and the Greek community in Cardiff.
