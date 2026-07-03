@@ -34,7 +34,7 @@ The argument by the School committee is that because officials from the Greek Em
 
 ## Why we wave the British flag
 
-Which brings me to my next point: The reason why we invite the Embassy officials on the independence day celebrations is simple. They are invited so that they can indeed see that the foreign policy etiquette **is actually** promoted by the Greek School in Cardiff. This is as part of an attempt by the Greek School to establishe a transactional relationship with the Embassy in the hope that expressions of nationalist spirit (and adhering to foreign policy etiquette) will result in some benefits for the Greek School.
+Which brings me to my next point: The reason why we invite the Embassy officials on the independence day celebrations is simple. They are invited so that they can indeed see that the foreign policy etiquette **is actually** promoted by the Greek School in Cardiff. This is as part of an attempt by the Greek School to establish a transactional relationship with the Embassy in the hope that expressions of nationalist spirit (and adhering to foreign policy etiquette) will result in some benefits for the Greek School.
 
 The Greek Embassy has done nothing for the Greek School in Cardiff for decades, so I do not expect a sudden out-pour of resources because we organised a parade. Even if we accept that this will lead to some benefits for the Greek School in Cardiff, we must understand the fragile foundations that such a transactional relationship has. Schools that do not organise parades, do not deserve to be resources properly?
 
