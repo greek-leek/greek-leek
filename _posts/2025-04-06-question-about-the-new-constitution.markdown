@@ -247,7 +247,7 @@ The argument in support of such long tenures is that the trustees will have to b
 
 *Alternative proposal*: Make the maximum term for a trustee 3 years and the minimum interval 5 years. This means that a parent who wishes to be a trustee can do so even twice during their child attending the School.
 
-## Areas not covered by the current constitution
+## Areas not covered by the current constitution {#areas-not-discussed-by-the-current-constitution}
 
 The following areas are not discussed in the current version of the constitution:
 
